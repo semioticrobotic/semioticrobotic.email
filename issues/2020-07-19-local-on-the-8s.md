@@ -8,7 +8,7 @@ Here's a track that aims not so much to arrest or even elevate [that shapeless m
 
 An interesting note: The sides of the cassette featuring this track aren't labeled. I just popped it in the deck hoping I'd get it right. But, really, work like this doesn't have a "right"; it's a slice of some larger, infinite durée, an indeterminate smear of slow muzak. And something infinite, having by definition no beginning or end, can't be played "right" or "wrong" (as that would imply some some sense of positivity, some directionality). So, theoretically, Side A is Side B and Side B is Side A.
 
-And yet, clearly, there's a "right" here, a motive. 猫 シ Corp. is the king of the vaporwave concept album. That ability cut into and reposition the quotidian is one of vaporwave's greatest gifts and most profound conceits—an "act of reframing," [Grafton Tanner says](https://www.johnhuntpublishing.com/zer0-books/our-books/babbling-corpse), the goal of which is not to parody but simply "to remind listeners of its omnipresence":
+And yet, clearly, there's a "right" here, a motive. 猫 シ Corp. is the king of the vaporwave concept album. That ability cut into and reposition the quotidian is one of vaporwave's greatest gifts and most profound conceits—an "act of reframing," [Grafton Tanner says](https://www.johnhuntpublishing.com/zer0-books/our-books/babbling-corpse), the goal of which is not to parody but simply underscore, amplify:
 
 > Vaporwave recontextualizes elevator music by sampling snippets from the most prosaic musical rubbish and presenting them in a different way, forcing us to reconsider Muzak's subversive qualities and its inane catchiness—to intently _listen_ to the music that has been humming just outside our perception for decades.
 
