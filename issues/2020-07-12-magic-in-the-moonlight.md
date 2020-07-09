@@ -8,6 +8,6 @@ They aren't the point. The point is simply to be part of the night. The point is
 
 Like the other songs collected on this album, this track isn't long. But it does its work quickly and effectively. Sax riffs mimic a soul's yearnful howl as the song activates that token ambiguity at the heart of so much vaporwave, settles into that psychic space between contentment and longing.
 
-Uneasy boredom from reel to reel, distilled into a single, reedy loop.
+It's just uneasy boredom from reel to reel, distilled into a single, reedy loop.
 
 **Pairs well with:** Your sharpest pair of unironic aviators.
