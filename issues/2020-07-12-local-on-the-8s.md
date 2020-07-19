@@ -1,3 +1,5 @@
+Permalink: local-on-the-8s
+
 # Local on the 8's by 猫 シ Corp.
 
 [Either the morning is hazy or my vision is.](https://catsystemcorp.bandcamp.com/track/local-on-the-8s)

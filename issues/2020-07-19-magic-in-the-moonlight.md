@@ -1,3 +1,5 @@
+Permalink: magic-in-the-moonlight
+
 # magic in the moonlight by COSMIC CYCLER
 
 [It's 3 a.m. and the boulevard is empty.](https://cosmiccycler.bandcamp.com/track/magic-in-the-moonlight)
