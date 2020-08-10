@@ -2,7 +2,7 @@ Permalink: private-caller
 
 # Private Caller by Saint Pepsi
 
-"[Can you even imagine](https://fortune500.bandcamp.com/track/private-caller)," my partner says, her eyes unfocused as she slowly lowers her fork and gazes across the kitchen at nothing in particular, "hearing [Sgt. Pepper's](https://en.wikipedia.org/wiki/Sgt.\_Pepper%27s\_Lonely\_Hearts\_Club\_Band)" for the first time?"
+"[Can you even imagine](https://fortune500.bandcamp.com/track/private-caller)," my partner says, her eyes unfocused as she slowly lowers her fork and gazes across the kitchen at nothing in particular, "hearing '[Sgt. Pepper's](https://en.wikipedia.org/wiki/Sgt.\_Pepper%27s\_Lonely\_Hearts\_Club\_Band)' for the first time?"
 
 I can't, sadly—though I'm sure my first time was with her, likely a winding road trip or a summer excursion.
 
