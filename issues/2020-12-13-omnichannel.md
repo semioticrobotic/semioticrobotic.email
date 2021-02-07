@@ -12,4 +12,4 @@ On this release, it's clear Diskette Park has distilled key learnings from prior
 
 Anyway, circle back to it when you have a chance. On a going-forward basis, I'd really encourage you to keep Diskette Park on your radar. Just ping me if you have questions.
 
-**Pairs well with:** Microsoft Windows for Workgroups®
+**Pairs well with:** Microsoft Windows for Workgroups®.

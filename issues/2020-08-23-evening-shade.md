@@ -14,5 +14,5 @@ The remote control has fallen there, too. It obscures envelopes she can read onl
 
 On the screen, the listings just [scroll and scroll, ever upward, beyond the pixelated horizon.](https://youtu.be/LG5N4oe4t3E) For minutes, she just watches, stares at it, lets the motion carry her to the same place it took Dad. "...everything you've been searching for," a voice is saying. And she wonders how long it's been like this.
 
-**Pairs well with:** A mildewed pile of _TV Guide_ and _Playboy_ magazines from the same months in 1983, haphazardly intermingled, both telling the same stories.
+**Pairs well with:** A mildewed pile of *TV Guide* and *Playboy* magazines from the same months in 1983, haphazardly intermingled, both telling the same stories.
 
